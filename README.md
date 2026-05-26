@@ -1,6 +1,6 @@
 <img width="1006" height="74" alt="image" src="https://github.com/user-attachments/assets/d9da4053-0977-4bba-9e8d-0f5d7ac6d7a9" />
 
-<p align="center">𑣲 - Reki.          He / Him please,,
+<p align="center">𑣲 - Abbie.          He / Him please,,
 <p align="center">⤷       17 bodily
 <p align="center">✩‧ I'm really sensitive please iwc
 <p align="center">⟢ • This Github is strictly for PonyTown, so if you've seen me around, hello!!
